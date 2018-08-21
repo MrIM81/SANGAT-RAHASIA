@@ -1,2 +1,2 @@
 # SANGAT-RAHASIA
-File ini hanya dapat dipecahkan oleh seseorang yang MAHIR bahasa pemrograman LTE, berisi kunci yang dapat mengakses komunikasi saya sepenuhnya langsung maupun tidak
+File ini hanya dapat dipecahkan oleh seseorang yang MAHIR bahasa pemrograman LTE, berisi apa yang kalian cari selama kni :-)
